@@ -1,0 +1,2 @@
+# project
+blin_bobr_bez_prava_golosa_v_2024_zzz
